@@ -1,4 +1,4 @@
-﻿
+
 
 1a. Show the location of your allocated country on a world map. Remember to apply BOLTSS:
 
@@ -13,14 +13,6 @@ Spain is located in southwestern Europe and is bordered by France, Andorra, Port
 2c. Currently Spain and Australia are in the same HDI rank of 0.900 – 0.950 which is a pretty high rank.
 
 3a. Spain had a more younger population ranging between 15-29 in 1994 compared to a more older population ranging between 45-59 years old in 2024. This could possibly be due to a baby boom around the late 1960s and early 1970s. This has been seen in the following graphs:
-
-
-
-
-
-
-
-
 
 
 
