@@ -5,7 +5,7 @@
 ![[Pasted image 20240604194958.png]]
 
 1b. Describe its location within the world and in relation to Australia:
-..
+
 Spain is located in southwestern Europe and is bordered by France, Andorra, Portugal and Morocco. In relation to Australia, Spain is located in the northern hemisphere whilst Australia is in the southern hemisphere, they are separated by more than two continents and vast distances.
 
 2a. Australia’s GDP per capita is over $60,000 whilst Spain’s is somewhere between $30,000 and $40,000.
