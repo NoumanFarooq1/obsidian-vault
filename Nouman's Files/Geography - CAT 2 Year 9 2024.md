@@ -33,7 +33,7 @@ Spain’s Infant Mortality Rate has declined by 0.6 since 2010 as it was at 3.2 
 
 Spain has had a healthy increase in life expectancy. Their life expectancy was around 62 years old in 1950 but has had a steady increase to 84 years in 2024.
 
-
+![[Pasted image 20240604195322.png]]
 
 Spain has a very high Non-Practicing Catholics presence with 35.2% of the population being Non-Practicing Catholics as of 2023. Practicing Catholics and Atheists share second place with a same percentage of 16.8%. Agnostic takes up 14.4% of the population with Indifferent/Non-believer’s taking up 12.9%. People who believe in a different religion or did not answer take up 2.4% and 1.6% completing the country’s religious ethnic composition.
 
