@@ -29,7 +29,7 @@ Spain is located in southwestern Europe and is bordered by France, Andorra, Port
 
 Spain’s Infant Mortality Rate has declined by 0.6 since 2010 as it was at 3.2 deaths per 1000 live births. In 2021, this number decreased to 2.6 deaths per 1000 live births.
 
-
+![[Pasted image 20240604195253.png]]
 
 Spain has had a healthy increase in life expectancy. Their life expectancy was around 62 years old in 1950 but has had a steady increase to 84 years in 2024.
 
