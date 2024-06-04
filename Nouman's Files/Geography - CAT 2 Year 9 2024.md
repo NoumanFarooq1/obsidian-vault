@@ -2,6 +2,8 @@
 
 1a. Show the location of your allocated country on a world map. Remember to apply BOLTSS:
 
+
+
 1b. Describe its location within the world and in relation to Australia:
 
 Spain is located in southwestern Europe and is bordered by France, Andorra, Portugal and Morocco. In relation to Australia, Spain is located in the northern hemisphere whilst Australia is in the southern hemisphere, they are separated by more than two continents and vast distances.
