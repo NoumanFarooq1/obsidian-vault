@@ -2,7 +2,7 @@
 
 1a. Show the location of your allocated country on a world map. Remember to apply BOLTSS:
 
-
+![[Pasted image 20240604194958.png]]
 
 1b. Describe its location within the world and in relation to Australia:
 
