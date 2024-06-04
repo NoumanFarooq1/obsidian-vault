@@ -18,6 +18,7 @@ Spain is located in southwestern Europe and is bordered by France, Andorra, Port
 
 ![[Pasted image 20240604195034.png]]
 ![[Pasted image 20240604195054.png]]
+
 3b. Spain’s CBR in 2024 is 7.8 births per 1000 people. The CDR is 9.58 deaths per 1000 people. Spain has experienced a negative NI due to the death rate exceeding the birth rate.
 
 3c. The religious ethnic composition of Spain is mainly Non-Practicing Catholics (35.2%) with Practicing Catholics and Atheists (both at 16.8% each) and other religions making up the rest of Spain. The infant mortality rate in 2021 was 2.6 deaths per 1000 births. The life expectancy for 2024 is 84.1 years.
