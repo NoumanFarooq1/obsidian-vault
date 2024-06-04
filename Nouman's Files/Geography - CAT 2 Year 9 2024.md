@@ -35,19 +35,6 @@ Spain has had a healthy increase in life expectancy. Their life expectancy was a
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 Spain has a very high Non-Practicing Catholics presence with 35.2% of the population being Non-Practicing Catholics as of 2023. Practicing Catholics and Atheists share second place with a same percentage of 16.8%. Agnostic takes up 14.4% of the population with Indifferent/Non-believer’s taking up 12.9%. People who believe in a different religion or did not answer take up 2.4% and 1.6% completing the country’s religious ethnic composition.
 
 4\. Has been addressed underneath the relevant diagrams
