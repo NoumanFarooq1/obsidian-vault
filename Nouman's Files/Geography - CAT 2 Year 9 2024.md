@@ -16,6 +16,7 @@ Spain is located in southwestern Europe and is bordered by France, Andorra, Port
 
 3a. Spain had a more younger population ranging between 15-29 in 1994 compared to a more older population ranging between 45-59 years old in 2024. This could possibly be due to a baby boom around the late 1960s and early 1970s. This has been seen in the following graphs:
 
+![[Pasted image 20240604195034.png]]
 
 3b. Spain’s CBR in 2024 is 7.8 births per 1000 people. The CDR is 9.58 deaths per 1000 people. Spain has experienced a negative NI due to the death rate exceeding the birth rate.
 
